@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Data Science**
 
-- 📫 How to reach me **sanjaralap@gmail.com**
+- 📫 How to reach me **gmshakil786@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
